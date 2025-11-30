@@ -1,0 +1,1 @@
+Business plan and 3 published/submitted papers for the sketch colorization project.
